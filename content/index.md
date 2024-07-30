@@ -1,6 +1,5 @@
 ---
-title: Welcome to Quartz
+title: Welcome to the Kili'Neya Lore Book
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started. please work wsdfasdfasdfasdfasdfadfasdf
+Im´´
