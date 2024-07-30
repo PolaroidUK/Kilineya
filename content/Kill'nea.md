@@ -8,3 +8,4 @@ Gods
 [[Wildlands]]
 [[Aldfield]]
 [[The Blue Sun]]
+![[WorldMap.jpg]]
