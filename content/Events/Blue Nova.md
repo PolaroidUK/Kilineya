@@ -1,1 +1,1 @@
-When the Blue sun exploded 
+When the [[The Blue Sun Crater]] exploded 

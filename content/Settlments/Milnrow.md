@@ -1,0 +1,1 @@
+One of the rare surviving forts in [[East Darley]]. It has a large presence of mercenaries and adventures that search the ruins in the nearby lands for artefacts and magic items. Home of [[The Scavengers]]

@@ -1,0 +1,1 @@
+Walsden is the largest city in  [[East Darley]]. It's massive walls have protected it from the onslaught of magical creatures.

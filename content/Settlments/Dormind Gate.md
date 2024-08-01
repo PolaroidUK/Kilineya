@@ -1,0 +1,1 @@
+The passage from the [[Wildlands]] to [[Aldfield]] that now has a gate to prevent monsters entering Aldfield.

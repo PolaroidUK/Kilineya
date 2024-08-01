@@ -1,0 +1,1 @@
+Fenay is a city in [[East Darley]]. It has a river port that serves as a stop for traders traveling to and from [[Walsden]] and [[Weir]].

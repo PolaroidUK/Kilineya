@@ -20,5 +20,7 @@ character creation
 
 Homebrew rules
 - Darkvision
+- Crafting
+- Attunement
 
 When can we play?

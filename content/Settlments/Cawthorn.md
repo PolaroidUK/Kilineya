@@ -1,0 +1,1 @@
+The second skyport for the [[Wildlands]]. Also the home for the [[Cawthorn Academy]], which searches [[The Blue Sun Crater]] Crater to research more about the magic and creatures in it.

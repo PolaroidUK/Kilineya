@@ -1,0 +1,1 @@
+An old [[Mordanian]] City that after a rebuilding is controlled by the hunters guild.

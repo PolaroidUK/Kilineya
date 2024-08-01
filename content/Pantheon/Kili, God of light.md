@@ -1,3 +1,9 @@
+---
+aliases:
+  - lightweaver
+  - Kili
+---
+
 Places of worship: Temples/churches of light, Hospital, Care houses, Orphanages.
 Kili is one of the two prime deities, often perceived as the mother of the gods, she with Neya bestowed the other gods with their powers. 
 

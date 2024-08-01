@@ -1,0 +1,1 @@
+Seen as the capital of the Wildlands, this is home of the Chief of the Wildlands who lives in an old [[Tilmerian]] Ruin in the centre of town. 

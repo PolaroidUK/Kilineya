@@ -1,0 +1,1 @@
+Todmorden is the Capital of [[Morden]]. The city is built inside of the mountainside and mainly inhabited by [[Todmorden Dwarves]]. 

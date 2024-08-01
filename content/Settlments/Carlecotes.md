@@ -1,0 +1,1 @@
+The only city in the [[Arras Desert]], built in a gap between the mountain range known as the sundered ridge. Serves as a typical stop for trade ships going to and from the [[Wildlands]]. 

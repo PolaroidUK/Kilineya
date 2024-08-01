@@ -1,3 +1,6 @@
+Capital:[[Blackshaw Head]]
+Cities:[[Wardle]],[[Cawthorn]]
+
 Wildlands is an area of east Kili'Neya which is inhabited by many tribes. 
 
 ## Before the Nova

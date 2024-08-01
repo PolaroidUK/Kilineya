@@ -1,0 +1,1 @@
+An old [[Aldfield]] fort that now is controlled by the Hunter guild. 
