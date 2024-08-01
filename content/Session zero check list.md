@@ -12,7 +12,6 @@ Lore dump
 - Gods
 - Darley, Wildlands, Morden
 
-
 character creation
 - ship jobs
 - Custom races
