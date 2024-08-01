@@ -1,5 +1,10 @@
-Map  
-Gods
+---
+draft: true
+---
+
+
+[[Pantheon]]
+
 
 [[Darley]]
 [[Arras Desert]]
@@ -7,4 +12,3 @@ Gods
 [[Wildlands]]
 [[Aldfield]]
 [[The Blue Sun]]
-![[WorldMap.jpg|100x145]]]

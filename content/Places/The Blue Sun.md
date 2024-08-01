@@ -1,0 +1,5 @@
+The Blue sun also known as the Heart of magic, key of [[Arcan]] or the Blue Eye, is a large crystal floating in the air in the middle of the blue sun crater. 
+200 years ago the Blue Sun was part of the largest flying city ever to be constructed, [[Tilmere]]. Due to an event known as the Blue Nova Tilmere was destroyed while flying over the East of Kili'Neya. Where the flying city use to be now the blue sun is left, levitating in the air, dispersing mass amounts of magic to the nearby lands, changing them. 
+
+The Crater
+Where once was the main battlefield between the tribes of the Wildlands and the kingdom of Darley now exists an enormous crater. Due to the magic coming from the blue sun, the crater has sprouted an entire jungle inhabited by creatures transformed by the overflowing magic. The only settlements that are able to withstand these creatures are two lower districts of the towns of Weir and Wardle.
