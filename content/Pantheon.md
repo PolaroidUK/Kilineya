@@ -12,7 +12,7 @@ They arrived first to this world and now watch over the souls of this plane. The
 
 [[Abria, God of Natur]]
 
-[[Sond, God of Everlasting Beauty]]
+[[Sond, God of Structure]]
 
 [[Jinos, God of Movement]]
 
