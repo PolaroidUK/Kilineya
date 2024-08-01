@@ -8,7 +8,7 @@ import * as Plugin from "./quartz/plugins"
  */
 const config: QuartzConfig = {
   configuration: {
-    pageTitle: "🪴 Quartz 4.0",
+    pageTitle: "Kili'Neya, a Travelers Guide",
     enableSPA: true,
     enablePopovers: true,
     analytics: {

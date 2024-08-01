@@ -1,0 +1,1 @@
+Places of worship: Temples/Church of Sond, Courthouses
