@@ -1,0 +1,1 @@
+An Academy who now as research posts in many settlements near and around [[The Blue Sun Crater]]. 

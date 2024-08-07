@@ -1,0 +1,1 @@
+The guild that oversees the hunting and selling of monsters in the Wildlands.

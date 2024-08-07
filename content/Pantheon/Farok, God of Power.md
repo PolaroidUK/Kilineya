@@ -1,0 +1,2 @@
+Places of worship: Colosseums, battlefields, sporting events 
+Farok is the god of Power, Strength and Victory. He loves the acts of winning with overwhelming force, battle and tasks performed in the most straightforward way possible. 

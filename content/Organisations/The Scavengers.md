@@ -1,0 +1,1 @@
+An organisation of adventures and dungeon delvers who scour the ruins of the [[Blue Nova]] for treasure. It's home is in [[Milnrow]]

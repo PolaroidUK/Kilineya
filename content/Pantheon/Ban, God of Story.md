@@ -1,0 +1,2 @@
+Places of worship: Taverns, Inns, Theatres 
+Ban is the god of a good story. He exists to observe the ever changing narrative that is the lives of the being that inhabit the world. He will watch as a con man cheats gold from a noble or as bard sings a song in a tavern.

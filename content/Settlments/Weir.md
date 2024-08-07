@@ -1,0 +1,1 @@
+Weir is second biggest city in [[East Darley]] and functions as the main Skyport between the [[Wildlands]] and the rest of the continent on Kili'Neya. 

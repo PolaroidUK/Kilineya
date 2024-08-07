@@ -1,0 +1,1 @@
+Places of worship: temples/churches of the spirit, graveyards

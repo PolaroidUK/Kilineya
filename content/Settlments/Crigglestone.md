@@ -1,0 +1,1 @@
+Crigglestone is the skyport for [[Morden]]. It a new city constructed since the [[Blue Nova]] and used as the main trade point between [[Morden]] and the [[Wildlands]].
